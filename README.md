@@ -1,1 +1,0 @@
-# pharmazona.github.io
